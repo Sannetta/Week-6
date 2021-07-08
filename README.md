@@ -1,1 +1,1 @@
-# HOMEWORK Week 6 Question 2
+# HOMEWORK Week 6
